@@ -1,1 +1,0 @@
-# manjicyan.github.io
